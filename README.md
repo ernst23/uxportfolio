@@ -1,3 +1,3 @@
 # Find me
 
-[LinkedIn](www.linkedin.com/in/daniel-ernst-ger)
+[LinkedIn](https://www.linkedin.com/in/daniel-ernst-ger)
